@@ -2,7 +2,7 @@
 - 👀 I’m interested in changing carrer path 
 - 🌱 I’m currently learning python and data analysis 
 - 💞️ I’m looking to collaborate on nothing right now (just learning).
-- 📫 How to reach me : kytiakosnk@outlook.com
+- 📫 How to reach me : kyriakosnk@outlook.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: hippo's milk is pink!
 
